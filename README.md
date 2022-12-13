@@ -1,2 +1,7 @@
-# sysd
-声音锁定
+~HUBHKNAK~
+
+-MECPDN-
+
+$AYAPEKHAICLCCCDN$
+
+￥LFPP￥
